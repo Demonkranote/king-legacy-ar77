@@ -1,4 +1,4 @@
-
+Download Free king legacy best Script for king legacy today and unlock instant win and no clip for a superior gaming experience. Whether you're a beginner or a pro, this script
 
 
 
